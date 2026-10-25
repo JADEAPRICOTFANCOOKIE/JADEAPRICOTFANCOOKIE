@@ -1,14 +1,18 @@
 <div align=center>
 <br/>
-<br/> <img width="500" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/IMG_4588.gif" />
+<br/> <img width="900" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/Untitled2923.webp" />
+<br/> <img width="700" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/Untitled2926.webp" />
+<br/> <img width="700" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/IMG_4588.gif" />
+<br/> <img width="700" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/Untitled2926.webp" />
+<br/> <img width="900" alt="image" src="https://file.garden/at1ZSK2OOzaq2jzU/Untitled2923.webp" />
 <br/> <details>
-  <summary> <sup><sub>🌊</sub></sup> </summary>
+  <summary> <sup><sub>🌸</sub></sup> </summary>
  <div align="center">
 <br/> kosrachi ᛝ fetti
 
 17 they/them nonbinary + aroace
 
-🫧
+💕
 <br/>
 <br/> BYI: I have severe social anxiety. So expect me to not talk at all and only crowning in whisper. I’m really shy but c+h is encouraged and free whenever but i'll always be NV/non verbal. I also can’t communicate very well. It’s a part of my social anxiety, so please don’t push me or force me to cooperate. I can do it whenever I feel like it. I’m very selective with friends too since I have HUGE trust issues. About the avoiding part. Please don’t think that I hate you. Either I’m really scared to talk to you, or I need some space. It takes a while, but I will get to you as soon as possible! I only block/unfriend people who either made me feel uncomfortable or being a horrible person in general.
 <br/>
