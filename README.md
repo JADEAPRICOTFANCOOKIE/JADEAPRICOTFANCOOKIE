@@ -20,3 +20,4 @@
 <br/>
 <br/> GAMES IM INTO: Splatoon, nullscape, Pokemon, Cookie run main 4
 </div> </details>
+<br/> hello! if you are currently reading this I am on hiatus! I am trying to focus on my mental health and school. I have been feeling mentally unwell and would like to have some time off to recover! I’ll perhaps be back soon, maybe January… ^_^
